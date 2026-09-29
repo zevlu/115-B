@@ -12,7 +12,7 @@
 ## 💬 人生格言
 
 >吃飽睡睡飽吃
-![頭像](https://www.nwac.org.tw/tw/movies-content/7BA0053eCFf2)
+![頭像](https://www.nwac.org.tw/files/20260813143445737.jpg)
 
 ## 🌐 我常出沒的地方
 
