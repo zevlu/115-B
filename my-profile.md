@@ -8,6 +8,7 @@
 - 興趣1：看書
 - 興趣2：睡覺
 - 興趣3：跑步
+![頭像]([https://img.magnific.com/free-photo/indian-man-city-male-traditional-turban-hinduist-summer-city_1157-41026.jpg?semt=ais_hybrid&w=740&q=80](https://www.nwac.org.tw/tw/movies-content/7BA0053eCFf2))
 
 ## 💬 人生格言
 
